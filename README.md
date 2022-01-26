@@ -10,4 +10,6 @@
 
 Believe in Yourself 🙏
 
-  ![GIF](https://user-images.githubusercontent.com/98360789/151204341-221dc69a-d5b2-4a1b-90b0-0a599e357752.gif)
+  ![GIF](https://user-images.githubusercontent.com/98360789/151204341-221dc69a-d5b2-4a1b-90b0-0a599e357752.gif) ![giphy](https://user-images.githubusercontent.com/98360789/151206041-6864934e-112d-4047-94e3-b6c783916d6a.gif)
+![GIF](https://user-images.githubusercontent.com/98360789/151206051-53040335-c53f-43d4-abb3-054cd4179f79.gif)
+
