@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-**Mariajosedibo19/Mariajosedibo19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Mariajosedibo19/Mariajosedibo19** 
 
 
 - Soy estudiante de Ingenieria de Sistemas de la universidad EAN 📚
